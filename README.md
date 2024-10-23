@@ -1,0 +1,1 @@
+# aluraempressas.svg
